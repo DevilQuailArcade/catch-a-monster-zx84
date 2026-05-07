@@ -1,4 +1,4 @@
-
+catch a monster Scripts secret is the best catch a monster Script, featuring infinite resources and auto-sell. Safe and powerful for all your needs.
 
 
 
